@@ -1,1 +1,1 @@
-# Gi-i-thi-u-v-tr-ng-i-h-c-Duy-T-n
+Giới thiệu về trường đại học Duy Tân - Đại học Duy Tân là một trường đại học nghiên cứu tư nhân tại Đà Nẵng, Việt Nam. Tên gọi này bắt nguồn từ Phong trào Hiện đại hóa, hay phong trào Duy Tân, năm 1906–1908 - https://mydtu.duytan.edu.vn/
